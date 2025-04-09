@@ -1,0 +1,1 @@
+# scannermarketing-privacidade
